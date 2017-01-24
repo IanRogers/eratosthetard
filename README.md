@@ -2,9 +2,11 @@
 Critical thinking on the delusions of the flat earth
 
 Flat Earthers have a habit using insults rather than provide answers. They include:
+
 - Nasshole
 - Globetard
 - Doofus
+
 etc. It's just noise though, treat it like static on the line and carry on asking questions like:
 
 - Was [Eratosthenes](https://en.wikipedia.org/wiki/Eratosthenes#Measurement_of_the_Earth.27s_circumference) funded by the Nasa conspiracy in 250BC?
