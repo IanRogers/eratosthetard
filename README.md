@@ -31,7 +31,7 @@ So I will accept one insult: I'm an Eratosthetard and proud of it.
 
 1. Why do the bottom of boats and towers at a distance disappear below the horizon before their tops?
 
-1. Talking of boats - why did ancient ships have the lookout's "birdnest" at the top of the tallest mast? Hint: it's not because the air is clearer up there... Hundreds of year ago they knew you see could see further around the globe if you got up high.
+1. Talking of boats - why did ancient ships have the lookout's "crow's nest" at the top of the tallest mast? Hint: it's not because the air is clearer up there... Hundreds of year ago they knew you see could see further around the globe if you got up high.
 
 1. Why aren't any of the other astronomical bodies flat too?
 
