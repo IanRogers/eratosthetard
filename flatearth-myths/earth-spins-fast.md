@@ -14,3 +14,4 @@ equations (four times pi squared times the radius divided by the period of rotat
 earth - you weigh about 0.5% less at the equator than at the poles.
 
 - [Cornell University](http://curious.astro.cornell.edu/about-us/42-our-solar-system/the-earth/gravity/94-does-your-weight-change-between-the-poles-and-the-equator-intermediate)
+- [Physics Tutorial](http://physicstasks.eu/929/centrifugal-force-on-the-equator)
