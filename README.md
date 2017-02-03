@@ -6,6 +6,7 @@ Flat Earthers have a habit using insults rather than provide answers. They inclu
 - Nasshole
 - Globetard
 - Doofus
+- Satanic (yes, it always end up there...)
 
 etc. It's just noise though, treat it like static on the line and carry on asking questions like:
 
