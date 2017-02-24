@@ -43,7 +43,7 @@ So I will accept one insult: I'm an Eratosthetard and proud of it.
 
 13. If both the sun and moon are circling above a flat earth then we can just about see how solar eclipses could work - but now explain lunar eclipses.
 
-14. Use any method you like to search for "Typus Orbis Terrarum" or the "Ortelius world map" - how come, way back in 1570, cartographers were already deciding that a flat map didn't capture reality? Or are all the museums in the world in on the hoax too?
+14. Use any method you like to search for "Typus Orbis Terrarum" or the "Ortelius world map" - how come, way back in 1570, cartographers were already deciding that a flat map didn't capture reality and were putting the poles on opposite sides? Or are all the museums in the world in on the hoax too?
 
 
 
